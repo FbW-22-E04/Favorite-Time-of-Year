@@ -1,1 +1,1 @@
-I like summer
+I like summer more than winter
